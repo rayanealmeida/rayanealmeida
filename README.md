@@ -1,4 +1,4 @@
-# Prazer, me chamo Rayane Queiroz! 👋🏽
+# Prazer, me chamo Rayane Almeida! 👋🏽
 
 ## Professora em transição de carreira para Tecnologia 👩🏽‍🏫➡️👩🏽‍💻
 
